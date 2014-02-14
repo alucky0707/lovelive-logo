@@ -1,6 +1,6 @@
 /*
 lovelive-logo.js
-version: 0.1.0
+version: 0.2.0
 license:
 Copyright (c) 2014, alucky0707
 All rights reserved.
@@ -148,3 +148,4 @@ setImmediate(runLovelive);
 exports.lovelivalize = lovelivalize;
 exports.unlovelivalize = unlovelivalize;
 exports.runLovelive = runLovelive;
+exports.VERSION = '0.2.0';
