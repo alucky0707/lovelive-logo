@@ -2,9 +2,14 @@
   "name": "lovelive-logo",
   "version": "0.1.0",
   "description": "lovelive-logo obfuscates codes in Love Live's Logo.",
+  "keywords": ["lovelive", "acme"],
   "main": "lovelive-logo.js",
   "scripts": {
     "test": "node test/test.js"
+  },
+  "repository": {
+    "type" : "git",
+    "url" : "http://github.com/alucky0707/lovelive-logo.git"
   },
   "author": "alucky0707",
   "license": "BSD"
