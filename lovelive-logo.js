@@ -129,6 +129,10 @@ global.__defineGetter__('ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ', function () {
 global.p$TOJOPX = function () { return 1; };
 global.__________________ = {__________________: {__________________: {_______: {__________________: 1}}}};
 
+var
+setImmediate = global.setImmediate;
+
+
 if (typeof setImmediate === 'undefined') {
   setImmediate = function (fn) {
     setTimeout(fn, 0);
