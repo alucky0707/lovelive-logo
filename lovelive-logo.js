@@ -138,10 +138,13 @@ if (typeof setImmediate === 'undefined') {
   };
 }
 
-setImmediate(function () {
+function runLovelive() {
   Function(unlovelivalize(lovelived))();
   lovelived = [];
-});
+}
+
+setImmediate(runLovelive);
 
 exports.lovelivalize = lovelivalize;
 exports.unlovelivalize = unlovelivalize;
+exports.runLovelive = runLovelive;
