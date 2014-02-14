@@ -3276,6 +3276,1038 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
@@ -3462,6 +4494,1098 @@ global.lovelive = require('./lovelive-logo.js');
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -3780,222 +5904,6 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
@@ -4008,24 +5916,48 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -4056,48 +5988,12 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -4116,12 +6012,120 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -4140,33 +6144,21 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
@@ -4189,114 +6181,6 @@ global.lovelive = require('./lovelive-logo.js');
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
@@ -4308,9 +6192,9 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
@@ -4320,168 +6204,12 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
     __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -4490,22 +6218,10 @@ global.lovelive = require('./lovelive-logo.js');
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -4524,21 +6240,33 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
     __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
@@ -4548,7 +6276,19 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
@@ -4560,96 +6300,36 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -4658,682 +6338,10 @@ global.lovelive = require('./lovelive-logo.js');
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
     __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -5412,72 +6420,36 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -5486,34 +6458,10 @@ global.lovelive = require('./lovelive-logo.js');
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -5640,9 +6588,9 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
@@ -5652,21 +6600,21 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
@@ -5688,19 +6636,7 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
@@ -5712,6 +6648,186 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
@@ -5724,8 +6840,20 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
@@ -5750,42 +6878,6 @@ global.lovelive = require('./lovelive-logo.js');
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
@@ -5814,6 +6906,822 @@ global.lovelive = require('./lovelive-logo.js');
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -7741,6 +9649,774 @@ global.lovelive = require('./lovelive-logo.js');
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
@@ -7765,11 +10441,95 @@ global.lovelive = require('./lovelive-logo.js');
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -7944,6 +10704,30 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
@@ -7998,6 +10782,150 @@ global.lovelive = require('./lovelive-logo.js');
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -8280,8 +11208,548 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
     __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
@@ -8298,6 +11766,270 @@ global.lovelive = require('./lovelive-logo.js');
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -8472,9 +12204,9 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
@@ -8484,9 +12216,21 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
@@ -8496,9 +12240,21 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
     __________________.                 $%8/  ___________________           / "                        "*M/  WA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
@@ -8520,408 +12276,36 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -8952,6 +12336,606 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  CO/
     __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
@@ -8976,54 +12960,6 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
-    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
-    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
-
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
@@ -9039,6 +12975,570 @@ global.lovelive = require('./lovelive-logo.js');
     ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
@@ -9096,6 +13596,186 @@ global.lovelive = require('./lovelive-logo.js');
                                           a$j*j                                                          +$_$*j
                                           ;' ;'                                                           ;' ;'   ,
      __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
     ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
     __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
    ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
@@ -9114,6 +13794,1590 @@ global.lovelive = require('./lovelive-logo.js');
                    '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
         ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
        ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($SAXVSONODAUMIOHIU/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  CO/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  WA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  ZA/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($HOSHIZORARINNZAC$/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  CO/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  WA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  ZA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /Y8*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($KOIZUMIHANAYOXAZ$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  Y8/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /CO*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($SAXVSONODAUMIOHIU/ ($KOIZUMIHANAYOXAZ$/           (p$TOJOPX) ($HOSHIZORARINNZAC$/  ZA/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  Y8/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /WA*
+
+                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
+
+                                          a$j*j                                                          +$_$*j
+                                          ;' ;'                                                           ;' ;'   ,
+     __________________.  __________________.  __________________.             _______.  __________________,   _1/
+    ($KOSAKAHONOKAXJHDM/ ($KOIZUMIHANAYOXAZ$/ ($HOSHIZORARINNZAC$/           (p$TOJOPX) ($SAXVSONODAUMIOHIU/  Y8/
+    __________________.                 $%8/  ___________________           / "                        "*M/  CO/
+   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  WA/
+                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
+        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
+       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /ZA*
 
                                                   Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
 
@@ -9208,7 +15472,7 @@ global.lovelive = require('./lovelive-logo.js');
 (function (global){
 /*
 lovelive-logo.js
-version: 0.1.0
+version: 0.2.0
 license:
 Copyright (c) 2014, alucky0707
 All rights reserved.
@@ -9356,6 +15620,7 @@ setImmediate(runLovelive);
 exports.lovelivalize = lovelivalize;
 exports.unlovelivalize = unlovelivalize;
 exports.runLovelive = runLovelive;
+exports.VERSION = '0.2.0';
 
 }).call(this,typeof self !== "undefined" ? self : typeof window !== "undefined" ? window : {})
 },{"buffer":1}]},{},[4])
