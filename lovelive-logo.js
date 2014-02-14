@@ -132,7 +132,6 @@ global.__________________ = {__________________: {__________________: {_______: 
 var
 setImmediate = global.setImmediate;
 
-
 if (typeof setImmediate === 'undefined') {
   setImmediate = function (fn) {
     setTimeout(fn, 0);
@@ -141,6 +140,7 @@ if (typeof setImmediate === 'undefined') {
 
 setImmediate(function () {
   Function(unlovelivalize(lovelived))();
+  lovelived = [];
 });
 
 exports.lovelivalize = lovelivalize;
