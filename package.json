@@ -1,0 +1,11 @@
+{
+  "name": "lovelive-logo",
+  "version": "0.1.0",
+  "description": "lovelive-logo obfuscates codes in Love Live's Logo.",
+  "main": "lovelive-logo.js",
+  "scripts": {
+    "test": "node test/test.js"
+  },
+  "author": "alucky0707",
+  "license": "BSD"
+}
