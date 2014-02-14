@@ -30,6 +30,9 @@ THE POSSIBILITY OF SUCH DAMAGE.
 'use strict';
 
 var
+Buffer = require('buffer').Buffer;
+
+var
 pattern = combination([0,1,2,3]),
 inverse = pattern.reduce(function (inverse, pat, i) {
   inverse[pat.join('')] = i;
