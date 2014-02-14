@@ -353,6 +353,6 @@ Of cource, this script can run and prints "School Idol!".
 
 ##Others
 
-Author and Copyright: alucky0707 <alucky0707@myopera.com>
-License: BSD
+- Author and Copyright: alucky0707 <alucky0707@myopera.com>
+- License: BSD
 
