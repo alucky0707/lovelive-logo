@@ -29,15 +29,6 @@ THE POSSIBILITY OF SUCH DAMAGE.
 
 'use strict';
 
-//lovelivalize/unlovelivalize
-
-var
-pattern = combination([0,1,2,3]),
-inverse = pattern.reduce(function (inverse, pat, i) {
-  inverse[pat.join('')] = i;
-  return inverse;
-}, {});
-
 var
 logoTemplate = [
 "                                          a$j*j                                                          +$_$*j"     ,
@@ -52,15 +43,29 @@ logoTemplate = [
 ''                                                                                                                    ,
 '                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))' ].join('\n');
 
-setA = ["$KOSAKAHONOKAXJHDM", "$SAXVSONODAUMIOHIU", "$HOSHIZORARINNZAC$", "$KOIZUMIHANAYOXAZ$"],
-setB = ["Y8", "ZA", "WA", "CO"];
 
-function lovelivalize(source) {
+//lovelivalize/unlovelivalize
+
+var
+pattern = combination([0,1,2,3]),
+inverse = pattern.reduce(function (inverse, pat, i) {
+  inverse[pat.join('')] = i;
+  return inverse;
+}, {});
+
+var
+setA = words('$KOSAKAHONOKAXJHDM $SAXVSONODAUMIOHIU $HOSHIZORARINNZAC$ $KOIZUMIHANAYOXAZ$'),
+setB = words('Y8 ZA WA CO'),
+varNames = words("a$j j $_$ _1 ___________________ M $AYASEELIHADXBIDA$ " +
+                 "___________ $AZACSHJD MIKOTORI Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ ｉ_ｄ_ｏ_ｌ");
+
+function lovelivalize(source, standalone) {
   var
   i,
-  lovelived = "require('lovelive-logo');\n\n",      
+  lovelived = standalone ? standaloneHeader : "require('lovelive-logo');\n\n",
   chars = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g), len = chars.length,
   c, a, b;
+  
   for (i = 0; i < len; i++) {
     if (chars[i].length === 1) {
       c = chars[i].charCodeAt(0);
@@ -70,6 +75,7 @@ function lovelivalize(source) {
     
     a = pattern[~~(c / 24)].slice(0);
     b = pattern[c % 24].slice(0);
+    
     lovelived += logoTemplate.replace(/%{18}/g, function () {
       return setA[a.shift()];
     }).replace(/%{2}/g, function () {
@@ -77,64 +83,78 @@ function lovelivalize(source) {
     }) + '\n';
   }
   
-  return lovelived;
-}
-
-function unlovelivalize(lovelived) {
-  var
-  encoded = lovelived.map(function (xs) {
-    return (inverse[xs[0]] * 24 + inverse[xs[1]]).toString(16);
-  }).join('%');
-  return encoded.length === 0 ? '' : decodeURIComponent('%' + encoded);
+  return standalone ? lovelived + '}' : lovelived;
 }
 
 var
-as = [],
-bs = [],
-lovelived = [];
+unlovelivalizeSource = [
+'function unlovelivalize(lovelived){'                             ,
+  'var '                                                          ,
+  'encoded=lovelived.map(function(xs){'                           ,
+    'return(inverse[xs[0]]*24+inverse[xs[1]]).toString(16);'      ,
+  "}).join('%');"                                                 ,
+  "return encoded.length===0?'':decodeURIComponent('%'+encoded);" ,
+'}'                                                               ].join('');
 
-setA.forEach(function (a, i) {
-  global.__defineGetter__(a, function () {
-    as.push(i);
-    return 1;
-  });
-});
-
-setB.forEach(function (b, i) {
-  global.__defineGetter__(b, function () {
-    bs.push(i);
-    return 1;
-  });
-});
-
-global.__defineGetter__('ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ', function () {
-  lovelived.push([as.join(''), bs.join('')]);
-  as = []; bs = [];
-  return 1;
-});
-
-("a$j j $_$ _1 ___________________ M $AYASEELIHADXBIDA$ " +
-"___________ $AZACSHJD MIKOTORI " +
-"Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ ｉ_ｄ_ｏ_ｌ").split(' ').forEach(function (v) { global[v] = 1; });
-
-global.p$TOJOPX = function () { return 1; };
-global.__________________ = {__________________: {__________________: {_______: {__________________: 1}}}};
+//global setup
 
 var
-setImmediate = global.setImmediate;
+globalSetupSource = [
+'var '                                                       ,
+'inverse=' + JSON.stringify(inverse) + ','                   ,
+'setA=' + JSON.stringify(setA) + ','                         ,
+'setB=' + JSON.stringify(setB) + ','                         ,
+'varNames=' + JSON.stringify(varNames) + ';'                 ,
+''                                                           ,
+'var '                                                       ,
+'as=[],'                                                     ,
+'bs=[],'                                                     ,
+'lovelived=[];'                                              ,
+''                                                           ,
+'setA.forEach(function(a, i){'                               ,
+  'global.__defineGetter__(a,function(){'                    ,
+    'as.push(i);'                                            ,
+    'return 1;'                                              ,
+  '});'                                                      ,
+'});'                                                        ,
+''                                                           ,
+'setB.forEach(function (b,i){'                               ,
+  'global.__defineGetter__(b,function(){'                    ,
+    'bs.push(i);'                                            ,
+    'return 1;'                                              ,
+  '});'                                                      ,
+'});'                                                        ,
+''                                                           ,
+"global.__defineGetter__('ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ',function(){" ,
+  "lovelived.push([as.join(''), bs.join('')]);"              ,
+  'as=[];bs=[];'                                             ,
+  'return 1;'                                                ,
+'});'                                                        ,
+''                                                           ,
+'varNames.forEach(function(v){global[v]=1;});'               ,
+''                                                           ,
+'global.p$TOJOPX=function(){return 1;};'                     ,
+'global.__________________={__________________:'             ,
+  '{__________________:'                                     ,
+    '{_______:'                                              ,
+      '{__________________:1}}}};'                           ,
+''                                                           ,
+'setTimeout(function(){'                                     ,
+  'Function(unlovelivalize(lovelived))();'                   ,
+'},0);'                                                      ].join('');
 
-if (typeof setImmediate === 'undefined') {
-  setImmediate = function (fn) {
-    setTimeout(fn, 0);
-  };
-}
+//lovelived header
 
-function runLovelive() {
-  Function(unlovelivalize(lovelived))();
-  lovelived = [];
-}
-
-setImmediate(runLovelive);
+var
+standaloneHeader = [
+'var '                       ,
+'lovelive=function(global){' ,
+  globalSetupSource          ,
+  unlovelivalizeSource       ,
+  'return global;'           ,
+'}({});\n\n'                 ,
+''                           ,
+'with (lovelive) {\n'        ].join('');
 
 //utils
 
@@ -153,9 +173,19 @@ function combination(xs) {
   return comb.length === 0 ? [[]] : comb;
 }
 
+function words(str) {
+  return str.split(' ');
+}
+
 //exports
 
 exports.lovelivalize = lovelivalize;
-exports.unlovelivalize = unlovelivalize;
-exports.runLovelive = runLovelive;
 exports.VERSION = '0.2.1';
+
+//launch if node.js
+
+if (global.process) {
+  new Function([
+    globalSetupSource    ,
+    unlovelivalizeSource ].join(''))();
+}
