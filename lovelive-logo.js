@@ -1,6 +1,6 @@
 /*
 lovelive-logo.js
-version: 0.2.1
+version: 0.3.0
 license:
 Copyright (c) 2014, alucky0707
 All rights reserved.
@@ -180,7 +180,7 @@ function words(str) {
 //exports
 
 exports.lovelivalize = lovelivalize;
-exports.VERSION = '0.2.1';
+exports.VERSION = '0.3.0';
 
 //launch if node.js
 
