@@ -41,7 +41,7 @@ logoTemplate = [
 "        ___________/'         ._______,/\"         ._________,/'         /M*'                  .______,/'  ._,"      ,
 '       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /%%*'        ,
 ''                                                                                                                    ,
-'                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))' ].join('\n');
+'                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))' ].join('\n') + '\n';
 
 
 //lovelivalize/unlovelivalize
@@ -91,7 +91,9 @@ unlovelivalizeSource = [
 'function unlovelivalize(lovelived){'                             ,
   'var '                                                          ,
   'encoded=lovelived.map(function(xs){'                           ,
-    'return(inverse[xs[0]]*24+inverse[xs[1]]).toString(16);'      ,
+    'var '                                                        ,
+    'c = inverse[xs[0]]*24+inverse[xs[1]]).toString(16);'         ,
+    'return ("00" + c).slice(-2);'                                ,
   "}).join('%');"                                                 ,
   "return encoded.length===0?'':decodeURIComponent('%'+encoded);" ,
 '}'                                                               ].join('');
