@@ -29,6 +29,8 @@ THE POSSIBILITY OF SUCH DAMAGE.
 
 'use strict';
 
+//lovelivalize/unlovelivalize
+
 var
 pattern = combination([0,1,2,3]),
 inverse = pattern.reduce(function (inverse, pat, i) {
@@ -36,36 +38,20 @@ inverse = pattern.reduce(function (inverse, pat, i) {
   return inverse;
 }, {});
 
-function combination(xs) {
-  var
-  comb = [],
-  x,
-  len = xs.length, i, j;
-  
-  for (i = 0; i < len; i++) {
-    x = xs.shift();
-    comb.push.apply(comb, combination(xs).map(function (c) {c.unshift(x);return c;}));
-    xs.push(x);
-  }
-  
-  return comb.length === 0 ? [[]] : comb;
-}
-
 var
-base = function () {/*
-                                          a$j*j                                                          +$_$*j
-                                          ;' ;'                                                           ;' ;'   ,
-     __________________.  __________________.  __________________.             _______.  __________________,   _1/
-    (%%%%%%%%%%%%%%%%%%/ (%%%%%%%%%%%%%%%%%%/ (%%%%%%%%%%%%%%%%%%/           (p$TOJOPX) (%%%%%%%%%%%%%%%%%%/  %%/
-    __________________.                 $%8/  ___________________           / "                        "*M/  %%/
-   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  %%/
-                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/
-        ___________/'         ._______,/"         ._________,/'         /M*'                  .______,/'  ._,
-       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /%%*
+logoTemplate = [
+"                                          a$j*j                                                          +$_$*j"     ,
+"                                          ;' ;'                                                           ;' ;'   ," ,
+"     __________________.  __________________.  __________________.             _______.  __________________,   _1/"  ,
+"    (%%%%%%%%%%%%%%%%%%/ (%%%%%%%%%%%%%%%%%%/ (%%%%%%%%%%%%%%%%%%/           (p$TOJOPX) (%%%%%%%%%%%%%%%%%%/  %%/"   ,
+'    __________________.                 $%8/  ___________________           / "                        "*M/  %%/'    ,
+"   ($AYASEELIHADXBIDA$/                 '$/  ($NISHIKINOMAKIMINA/ ._______,D;'                         .$/  %%/"     ,
+"                   '@/                  @/                   `@/ ($NOZOMI`;N                           @/  N'/"      ,
+"        ___________/'         ._______,/\"         ._________,/'         /M*'                  .______,/'  ._,"      ,
+'       ($AZACSHJD*"          ($ABIACZA"*          (MIKOTORI*"          (@/                   ($AXACj*"  /%%*'        ,
+''                                                                                                                    ,
+'                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))' ].join('\n');
 
-                                                  Ｓ_ｃ_ｈ_ｏ_ｏ_ｌ*    ｉ_ｄ_ｏ_ｌ*    ｐ_ｒ_ｏ_ｊ_ｅ_ｃ_ｔ)))))))
-
-*/}.toString().split('\n').slice(1,-1).join('\n'),
 setA = ["$KOSAKAHONOKAXJHDM", "$SAXVSONODAUMIOHIU", "$HOSHIZORARINNZAC$", "$KOIZUMIHANAYOXAZ$"],
 setB = ["Y8", "ZA", "WA", "CO"];
 
@@ -73,21 +59,21 @@ function lovelivalize(source) {
   var
   i,
   lovelived = "require('lovelive-logo');\n\n",      
-  buf = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g), len = buf.length,
-  b, x, y;
+  chars = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g), len = chars.length,
+  c, a, b;
   for (i = 0; i < len; i++) {
-    if (buf[i].length === 1) {
-      b = buf[i].charCodeAt(0);
+    if (chars[i].length === 1) {
+      c = chars[i].charCodeAt(0);
     } else {
-      b = parseInt(buf[i].slice(1), 16);
+      c = parseInt(chars[i].slice(1), 16);
     }
     
-    x = pattern[~~(b / 24)].slice(0);
-    y = pattern[b % 24].slice(0);
-    lovelived += base.replace(/%{18}/g, function () {
-      return setA[x.shift()];
+    a = pattern[~~(c / 24)].slice(0);
+    b = pattern[c % 24].slice(0);
+    lovelived += logoTemplate.replace(/%{18}/g, function () {
+      return setA[a.shift()];
     }).replace(/%{2}/g, function () {
-      return setB[y.shift()];
+      return setB[b.shift()];
     }) + '\n';
   }
   
@@ -149,6 +135,25 @@ function runLovelive() {
 }
 
 setImmediate(runLovelive);
+
+//utils
+
+function combination(xs) {
+  var
+  comb = [],
+  x,
+  len = xs.length, i, j;
+  
+  for (i = 0; i < len; i++) {
+    x = xs.shift();
+    comb.push.apply(comb, combination(xs).map(function (c) {c.unshift(x);return c;}));
+    xs.push(x);
+  }
+  
+  return comb.length === 0 ? [[]] : comb;
+}
+
+//exports
 
 exports.lovelivalize = lovelivalize;
 exports.unlovelivalize = unlovelivalize;
