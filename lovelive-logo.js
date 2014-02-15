@@ -92,7 +92,7 @@ unlovelivalizeSource = [
   'var '                                                          ,
   'encoded=lovelived.map(function(xs){'                           ,
     'var '                                                        ,
-    'c = inverse[xs[0]]*24+inverse[xs[1]]).toString(16);'         ,
+    'c = (inverse[xs[0]]*24+inverse[xs[1]]).toString(16);'         ,
     'return ("00" + c).slice(-2);'                                ,
   "}).join('%');"                                                 ,
   "return encoded.length===0?'':decodeURIComponent('%'+encoded);" ,
