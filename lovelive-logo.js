@@ -30,9 +30,6 @@ THE POSSIBILITY OF SUCH DAMAGE.
 'use strict';
 
 var
-Buffer = require('buffer').Buffer;
-
-var
 pattern = combination([0,1,2,3]),
 inverse = pattern.reduce(function (inverse, pat, i) {
   inverse[pat.join('')] = i;
@@ -76,11 +73,17 @@ function lovelivalize(source) {
   var
   i,
   lovelived = "require('lovelive-logo');\n\n",      
-  buf = new Buffer(source, 'utf8'), len = buf.length,
-  x, y;
+  buf = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g), len = buf.length,
+  b, x, y;
   for (i = 0; i < len; i++) {
-    x = pattern[~~(buf[i] / 24)].slice(0);
-    y = pattern[buf[i] % 24].slice(0);
+    if (buf[i].length === 1) {
+      b = buf[i].charCodeAt(0);
+    } else {
+      b = parseInt(buf[i].slice(1), 16);
+    }
+    
+    x = pattern[~~(b / 24)].slice(0);
+    y = pattern[b % 24].slice(0);
     lovelived += base.replace(/%{18}/g, function () {
       return setA[x.shift()];
     }).replace(/%{2}/g, function () {
@@ -92,9 +95,11 @@ function lovelivalize(source) {
 }
 
 function unlovelivalize(lovelived) {
-  return new Buffer(lovelived.map(function (xs) {
-    return inverse[xs[0]] * 24 + inverse[xs[1]];
-  })).toString();
+  var
+  encoded = lovelived.map(function (xs) {
+    return (inverse[xs[0]] * 24 + inverse[xs[1]]).toString(16);
+  }).join('%');
+  return encoded.length === 0 ? '' : decodeURIComponent('%' + encoded);
 }
 
 var
