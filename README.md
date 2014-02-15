@@ -2,6 +2,8 @@
 
 lovelive-logo obfuscates JavaScript codes in Love Live's Logo.
 
+[Try it in browser!](http://alucky0707.github.io/lovelive-logo/)
+
 ##Install
 
 ```
@@ -351,8 +353,26 @@ require('lovelive-logo');
 
 Of cource, this script can run and prints "School Idol!".
 
+##API
+
+```js
+var
+lovelive = require('lovelive-logo');
+```
+
+###lovelive.lovelivalize(source [, standalone = false])
+
+returns obfuscated JavaScript codes in Love Live's Logo.
+
+  - source [String] original source code
+  - standalone [Boolean] if true, obfuscated source can run without lovelive-logo.
+
+###lovelive.VERSION
+
+version string.
+
 ##Others
 
-- Author and Copyright: alucky0707 <alucky0707@myopera.com>
-- License: BSD
+  - Author and Copyright: alucky0707 <alucky0707@myopera.com>
+  - License: BSD
 
