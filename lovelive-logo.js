@@ -1,6 +1,6 @@
 /*
 lovelive-logo.js
-version: 0.3.1
+version: 0.3.2
 license:
 Copyright (c) 2014, alucky0707
 All rights reserved.
@@ -63,7 +63,7 @@ function lovelivalize(source, standalone) {
   var
   i,
   lovelived = standalone ? standaloneHeader : "require('lovelive-logo');\n\n",
-  chars = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g), len = chars.length,
+  chars = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g)||[], len = chars.length,
   c, a, b;
   
   for (i = 0; i < len; i++) {
@@ -184,7 +184,7 @@ function words(str) {
 //exports
 
 exports.lovelivalize = lovelivalize;
-exports.VERSION = '0.3.1';
+exports.VERSION = '0.3.2';
 
 //launch if node.js
 
