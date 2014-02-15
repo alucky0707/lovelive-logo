@@ -83,7 +83,7 @@ function lovelivalize(source, standalone) {
     }) + '\n';
   }
   
-  return standalone ? lovelived + '}' : lovelived;
+  return standalone ? lovelived + standaloneFooter : lovelived;
 }
 
 var
@@ -143,18 +143,20 @@ globalSetupSource = [
   'Function(unlovelivalize(lovelived))();'                   ,
 '},0);'                                                      ].join('');
 
-//lovelived header
+//lovelived header/footer
 
 var
 standaloneHeader = [
-'var '                       ,
-'lovelive=function(global){' ,
-  globalSetupSource          ,
-  unlovelivalizeSource       ,
-  'return global;'           ,
-'}({});\n\n'                 ,
-''                           ,
-'with (lovelive) {\n'        ].join('');
+'~function start(lovelive) {\n\n' ,
+''                                ,
+'with (lovelive) {\n'             ].join(''),
+
+standaloneFooter = [
+'}}(function(global){' ,
+  globalSetupSource    ,
+  unlovelivalizeSource ,
+  'return global;'     ,
+'}({}))'               ].join('');
 
 //utils
 
