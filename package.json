@@ -5,7 +5,7 @@
   "keywords": ["lovelive", "acme"],
   "main": "lovelive-logo.js",
   "scripts": {
-    "test": "node test/test.js"
+    "test": "node test/test.js | node"
   },
   "repository": {
     "type" : "git",
