@@ -63,7 +63,7 @@ function lovelivalize(source, standalone) {
   var
   i,
   lovelived = standalone ? standaloneHeader : "require('lovelive-logo');\n\n",
-  chars = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g), len = chars.length,
+  chars = encodeURIComponent(source).match(/[-a-zA-Z0-9_.!~*'()]|%[0-9a-fA-F]{2}/g)||[], len = chars.length,
   c, a, b;
   
   for (i = 0; i < len; i++) {
