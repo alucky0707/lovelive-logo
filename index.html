@@ -69,14 +69,24 @@
             </div>
             <div class="panel-body">
               <div class="row">
-                <textarea id="input-source" class="col-lg-10 col-md-10 col-sm-10 col-xs-12 source-code" rows="5">alert("School Idol!");</textarea>
-                <div class="col-lg-2 col-md-2 col-sm-2 col-xs-12">
+                <textarea id="input-source" class="col-lg-10 col-md-10 col-sm-12 col-xs-12 source-code" rows="7">alert("School Idol!");</textarea>
+                <div class="col-lg-2 col-md-2 col-sm-12 col-xs-12">
                   <div class="row">
-                    <div class="col-lg-12 col-md-12 col-sm-12 col-xs-2">
+                    <div class="col-lg-12 col-md-12 col-sm-2 col-xs-2">
                       <button id="source-convert" class="btn" type="button">convert</button>
                     </div>
-                    <div class="col-lg-12 col-md-12 sm-12 col-xs-4">
-                      <input id="autoconvert-flag" type="checkbox" checked value="auto convert">auto convert</input>
+                    <div class="col-lg-12 col-md-12 col-sm-3 col-xs-3">
+                      <div class="checkbox">
+                        <label>
+                          <input id="autoconvert-flag" type="checkbox" checked value="auto convert">auto convert</input>
+                        </label>
+                      </div>
+                    </div>
+                    <div class="col-lg-12 col-md-12 col-sm-3 col-xs-3">
+                      <select id="select-source-type" class="form-control">
+                        <option value="browser">Browser</option>
+                        <option value="node.js">Node.js</option>
+                      </select>
                     </div>
                   </div>
                 </div>
@@ -94,7 +104,7 @@
             </div>
             <div class="panel-body">
               <div class="row">
-                <textarea id="output-source" class="col-lg-10 col-md-10 col-sm-10 col-xs-12 source-code" rows="13"></textarea>
+                <textarea id="output-source" class="col-lg-10 col-md-10 col-sm-12 col-xs-12 source-code" rows="13"></textarea>
                 <div class="col-lg-2 col-md-2 col-sm-2 col-xs-2">
                   <button id="source-execute" class="btn" type="button">execute</button>
                   <p id="source-infomation">
@@ -134,5 +144,6 @@
     <script src="//netdna.bootstrapcdn.com/bootstrap/3.1.1/js/bootstrap.min.js"></script>
     
     <script src="./bundle.js"></script>
+    <script src="./main.js"></script>
   </body>
 </html>
