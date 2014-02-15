@@ -355,7 +355,7 @@ Of cource, this script can run and prints "School Idol!".
 
 ##API
 
-```
+```js
 var
 lovelive = require('lovelive-logo');
 ```
