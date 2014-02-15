@@ -1,6 +1,6 @@
 {
   "name": "lovelive-logo",
-  "version": "0.3.1",
+  "version": "0.3.2",
   "description": "lovelive-logo obfuscates codes in Love Live's Logo.",
   "keywords": ["lovelive", "acme"],
   "main": "lovelive-logo.js",
